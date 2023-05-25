@@ -1,3 +1,2 @@
 # hello-world
-Testing 1 2 3.
-dhdhchvmfjjjjjgj
+Nama saya arkan ip saya 6 ges.
